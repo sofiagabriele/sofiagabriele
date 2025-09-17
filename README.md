@@ -23,3 +23,9 @@ Entre em contato comigo:
 
 - 📧 **Email**: [sofia_hein@estudante.sesisenai.org.br](mailto:sofia_hein@estudante.sesisenai.org.br)  
 - 📸 **Instagram**: [@sofih_gabi](https://instagram.com/sofih_gabi)
+
+---
+
+<p align="center">
+  Obrigada por visitar meu perfil! 🌟
+</p>
